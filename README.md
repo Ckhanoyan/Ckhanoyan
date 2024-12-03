@@ -5,4 +5,3 @@
 - 📫 How to reach me: Ckhanoyan@gwu.edu
 - 😄 Pronouns: He/Him/Himself
 - ⚡ Fun fact: I am the next Steve Jobs. Maybe not really.
--->
